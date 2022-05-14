@@ -7,3 +7,7 @@ E-mail neuroscience@sigmund.science with Questions and Requests.
 Visit https://NeuroscienceAfterDark.com/ for more Projects.
 
 Pleae Visit and Subscribe to the NeuroscienceAfterDark YouTube Channel via this Link: https://www.youtube.com/channel/UCnr-9IFwsRq7yLKBXzn7yVw
+
+Follow @NeuorscienceAfterDark on Instragram
+
+Follow NeuroscienceAD on Twitter
